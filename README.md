@@ -1,1 +1,0 @@
-# NAGI_TEST_AR_NG300id6f6
